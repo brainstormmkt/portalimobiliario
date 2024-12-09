@@ -5,7 +5,7 @@ https://flipboard.com/@BrainStormM6sm9
 https://sites.google.com/view/focoempresarial
 https://portalimobiliario.mystrikingly.com/
 https://sites.google.com/view/larevida/
-larevida.weebly.com
+https://larevida.weebly.com
 https://brainstormmkt.notion.site/Links-para-avalia-o-1494cbd84a2380c59b2cc29e76e6900c
 https://list.ly/list/B3Wy-web-sites
 https://www.tumblr.com/brainstormnegocios
