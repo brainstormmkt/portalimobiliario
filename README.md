@@ -218,7 +218,7 @@ https://rentry.co/link-google-3
 https://colibris-wiki.org/avenir-scic/?recetasdecomidas 
 https://colibris-wiki.org/avenir-scic/?ybb10 
 https://colibris-wiki.org/avenir-scic/?LinkO 
-https://6799128d6bb1f.site123.me/  (coletar links de redirecionamento)
+https://6799128d6bb1f.site123.me/ 
 
 https://6799128d6bb1f.site123.me/blog/o-melhor-portal-de-cadastro-de-im%C3%B3veis 
 https://writeablog.net/7dlkie70e5 
