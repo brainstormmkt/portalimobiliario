@@ -235,4 +235,7 @@ https://brainstormmarketingdigital.substack.com/p/o-melhor-portal-de-cadastro-de
  https://gravatar.com/brainstormmarketingdigital
  https://portalimovelja.com.br/corretor-de-imoveis-em-goiania/
  https://www.behance.net/brainsmarketi
-![image](https://github.com/user-attachments/assets/1fd6f6a0-7352-4756-85cb-d823b8b5e2d8)
+https://brainstormmkt.notion.site/Como-Monetizar-um-Blog-com-Google-AdSense-e-Afiliados-da-Amazon-1904cbd84a23807ab34ef6a90b930a33
+https://brainstormmkt.notion.site/O-Melhor-Portal-de-Cadastro-de-Im-veis-1904cbd84a238076b4dde99dedd4112f
+https://brainstormmkt.notion.site/A-Import-ncia-da-Cria-o-de-Sites-Otimizados-Conhe-a-a-Expertise-da-Brain-Storm-1904cbd84a2380ffa817d05c45e0cc64
+
