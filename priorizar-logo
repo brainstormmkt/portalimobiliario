@@ -1,0 +1,6 @@
+document.addEventListener('DOMContentLoaded', function() {
+    const logo = document.querySelector('img[alt="Mobile logo"]');
+    if (logo) {
+        logo.setAttribute('fetchpriority', 'high');
+    }
+});
